@@ -3,7 +3,7 @@
 ## I'm a Developer, Student and Future Skynet Engineer 🤖!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with others
-- 🥅 2020 Goals: Contribute more to Open Source projects
+- 🥅 2021 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I enjoy playing video games
 
 ### Connect with me:
